@@ -1,6 +1,6 @@
 ## Ioana Raluca Petrescu
 
-###About me
+### About me
 Engineer, travel enthusiast and dog person ✨
 
 ### Find me
